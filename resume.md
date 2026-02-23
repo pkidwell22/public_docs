@@ -1,6 +1,6 @@
 **Patrick Kidwell**
 
-Lakewood Ranch, FL | patrickthomaskidwell@gmail.com | [Portfolio](https://mountainmeadowsystems.com/) | GitHub: pkidwell22
+patrick@mountainmeadowsystems.com | Website: mountainmeadowsystems.com | GitHub: pkidwell22
 
 **Summary**
 
