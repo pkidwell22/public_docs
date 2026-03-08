@@ -1,6 +1,6 @@
 **Patrick Kidwell**
 
-patrick@mountainmeadowsystems.com | Website: mountainmeadowsystems.com | GitHub: pkidwell22
+patrick@mountainmeadowsystems.com | Website: [mountainmeadowsystems.com](https://mountainmeadowsystems.com/) | GitHub: pkidwell22
 
 **Summary**
 
